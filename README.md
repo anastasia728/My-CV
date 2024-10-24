@@ -1,3 +1,3 @@
 ## My CV
-[ссылка на SV](SV)
+[ссылка на SV]("C:\Users\isats\Downloads\CV.docx.pdf")
 
